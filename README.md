@@ -26,4 +26,5 @@ https://discord.gg/CSKtFjKWWW
 
 ## Copyright 
 
-Todos os direitos e créditos à osama. 
+Todos os direitos e créditos à neckrique
+. 
